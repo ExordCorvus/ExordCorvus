@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ExordCorvus
+- 👀 I'm not interested in anything, but will try to get fast development in the .net field.
+- 🌱 I'm learning now for a lonely and long time.
+- 💞️ I’m looking to collaborate on with myself.
+- 📫 You can reach me on telegram @Gl1tc7
